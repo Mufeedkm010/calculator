@@ -1,1 +1,1 @@
-![Screenshot_9-7-2024_154024_127 0 0 1](https://github.com/Mufeedkm010/calculator/assets/166125773/4fbbf451-7875-4dd7-8683-981d3d1d6d1b)
+![calculator](https://github.com/user-attachments/assets/f1161ba3-9937-49a2-8b97-b2167cceb26e)
